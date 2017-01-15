@@ -8,4 +8,4 @@
 
 ![](https://raw.githubusercontent.com/babyking/baiduyun_search/master/Snip20170115_5.png)
 
-![](https://raw.githubusercontent.com/babyking/baiduyun_search/master/Snip20170115_y.png)
+![](https://raw.githubusercontent.com/babyking/baiduyun_search/master/Snip20170115_6.png)
